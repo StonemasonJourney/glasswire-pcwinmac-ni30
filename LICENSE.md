@@ -1,4 +1,4 @@
-# 
+# Oficial GlassWire plantillas para Mac OS | Mejor GlassWire plantillas para PC Windows. Con registro de transacciones y monitoreo de filtraciones — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
